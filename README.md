@@ -5,7 +5,7 @@ This software conjoined all the best snipers on the market into one to guarantee
 
 WEBSITE:
 
-https://solana-snipers.com
+https://solana-snipers.co
 
 FREE TRIAL:
 
